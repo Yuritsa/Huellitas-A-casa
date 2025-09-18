@@ -1,0 +1,2 @@
+Paola Uriostegui y Diego Islas
+Teresa Vargas y Evelyn Regina
